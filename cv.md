@@ -13,7 +13,7 @@ Code examples: add later.
 
 Experience: same as exaples. 
 
-Education: Secondary Vocational Education.
+Education: SSE, 2016, KSTMiA UO RIPO, Mechatrinics
 
 English: B1.
 
