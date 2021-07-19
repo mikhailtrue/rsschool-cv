@@ -13,7 +13,7 @@ Code examples: add later.
 
 Experience: same as exaples. 
 
-Education: SSE, 2016, KSTMiA UO RIPO, Mechatrinics
+Education: SSE, 2016, KSTMiA UO RIPO, Mechatronics/CNC Programmer
 
 English: B1.
 
